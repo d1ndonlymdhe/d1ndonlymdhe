@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @d1ndonlymdhe[Ayush Shrestha].
+- 👋 Hi, I’m @d1ndonlymdhe.
 - 👀 I’m interested in .graphic design/web development.
 - 🌱 I’m currently learning photoshop/web technologies.
 - 💞️ I’m looking to collaborate on projects/
